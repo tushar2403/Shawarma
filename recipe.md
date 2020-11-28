@@ -1,0 +1,1 @@
+Shawarma is prepared by stacking strips of marinated meat and fats alternately on a vertical spit, resulting in a large block of meat & fats. The block of meat is grilled slowly while the spit rotates.
